@@ -1,4 +1,6 @@
 - 👋 Hi, I’m Michael
+- 📫 How to reach me: https://toycrane.tk/
+- 🦸🏻‍♂️ Pronouns: he/him
 
 ---
 
